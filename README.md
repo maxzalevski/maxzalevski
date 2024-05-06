@@ -4,7 +4,7 @@
 - 💞️ We looking to collaborate on Regenerayive and Resilience projects
 - 📫 How to reach me: Telegram @SimpleGreen
 - ⚡ Fun fact: I am called Mr. President because for some time I went to all the congresses and Ecovillage Assemblies in a jacket
-- 
+- And this is our Dream Team
 ![Our Team](https://genukraine.com.ua/images/2023/02/10/__dsc_2551-2.jpg)
 
 
